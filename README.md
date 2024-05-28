@@ -10,7 +10,7 @@ This is what Berlin looks like (just in case):
 
 Other things I do:
 - Go to the museum an abnormal amount of times
-- Walk around the city and look at cool architecture
+- Walk around cities and look at cool architecture
 - Browse websites and say "Wow, nice design! (Wish I would have thought of that...)"
 
 Feel free to ask me about stuff! 🚀
