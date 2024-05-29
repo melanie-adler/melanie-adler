@@ -5,7 +5,7 @@ Welcome to my page!
 I am a Berlin based web development student.
 
 Other things I do:
-- Go to the museum an abnormal amount of times
+- Visit the same museum an abnormal amount of times
 - Walk around cities and look at cool architecture
 - Browse websites and say "Wow, nice design! (Wish I would have thought of that...)"
 
